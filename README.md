@@ -1,0 +1,1 @@
+# yjeeeee0510-afk.github.io
